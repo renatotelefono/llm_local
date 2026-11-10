@@ -1,0 +1,2 @@
+Quando L'Imperatrice appare nella posizione del passato, richiama momenti in cui la creatività, la cura o la protezione hanno avuto un ruolo centrale nella tua vita. Potresti ricordare periodi in cui hai dato vita a progetti importanti, nutrito relazioni o sostenuto altre persone con generosità.  
+Questo passato rappresenta una base di crescita e di armonia: aver saputo creare e proteggere ciò che era importante ti ha permesso di sviluppare fiducia e stabilità interiore.

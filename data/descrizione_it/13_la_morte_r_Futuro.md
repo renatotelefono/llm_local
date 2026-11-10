@@ -1,0 +1,2 @@
+Quando La Morte rovesciata appare nella posizione del futuro, avverte che i cambiamenti arriveranno comunque, ma potrebbero essere più difficili se ostacolati. Ritardare la trasformazione può causare frustrazione e prolungare situazioni stagnanti.  
+Il consiglio della carta è di prepararsi alla liberazione e di abbracciare la fine dei cicli con consapevolezza. Solo così sarà possibile trasformare la resistenza in crescita e aprirsi a una nuova fase di vita, più autentica e libera.

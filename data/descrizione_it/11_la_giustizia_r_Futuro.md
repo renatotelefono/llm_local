@@ -1,0 +1,2 @@
+Quando La Giustizia rovesciata appare nella posizione del futuro, avverte di possibili ritardi, ostacoli legali o conflitti derivanti da mancanza di trasparenza. Le conseguenze di azioni scorrette, proprie o altrui, potrebbero emergere, richiedendo coraggio e onestà per essere affrontate.  
+Il consiglio della carta è chiaro: preparati a riconoscere la verità, anche se scomoda, e lavora per ristabilire equilibrio e integrità. Solo così potrai trasformare una fase di instabilità in un’occasione di crescita e maturità interiore.

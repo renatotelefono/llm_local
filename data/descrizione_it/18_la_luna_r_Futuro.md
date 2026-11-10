@@ -1,0 +1,2 @@
+Quando La Luna rovesciata appare nella posizione del futuro, indica che un periodo di confusione o di illusioni è destinato a chiarirsi. Tuttavia, la strada verso la piena consapevolezza potrebbe richiedere coraggio e un confronto sincero con le proprie paure e ombre interiori.  
+Il consiglio della carta è di usare questa fase come un’opportunità di crescita: affrontare le verità nascoste porterà liberazione, forza interiore e una visione più autentica del mondo e di sé stessi.

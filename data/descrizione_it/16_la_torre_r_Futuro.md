@@ -1,0 +1,2 @@
+Quando La Torre rovesciata appare nella posizione del futuro, avverte che il cambiamento arriverà comunque, ma la resistenza potrebbe renderlo più difficile o doloroso. Ritardare la trasformazione può causare tensione prolungata e ostacolare la crescita personale.  
+Il consiglio della carta è di prepararsi ad accogliere il cambiamento con consapevolezza, perché solo accettando di lasciare andare il vecchio sarà possibile costruire basi più solide per il futuro.

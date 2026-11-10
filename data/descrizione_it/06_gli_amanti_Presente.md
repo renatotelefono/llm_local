@@ -1,0 +1,2 @@
+Nel presente, Gli Amanti indicano che ti trovi di fronte a una scelta significativa, spesso legata alle relazioni o alla tua vita affettiva. È il momento di ascoltare il cuore, ma anche di mantenere equilibrio e consapevolezza.  
+Questa carta invita a riflettere sui valori che guidano le tue decisioni e a scegliere la strada che ti porta armonia e autenticità. Indica anche un periodo favorevole per rafforzare i legami affettivi, basandoli su fiducia, sincerità e rispetto reciproco.

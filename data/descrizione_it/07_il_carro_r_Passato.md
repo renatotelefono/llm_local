@@ -1,0 +1,2 @@
+Se Il Carro rovesciato appare nella posizione del passato, richiama periodi in cui hai vissuto rallentamenti, insicurezze o mancanza di direzione. Potresti ricordare momenti in cui le difficoltà esterne o interne hanno limitato la tua capacità di avanzare.  
+Questa esperienza rappresenta una lezione importante: imparare a riconoscere e a correggere la dispersione di energie aiuta a rafforzare determinazione e chiarezza di intenti.

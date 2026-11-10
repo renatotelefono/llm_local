@@ -1,0 +1,2 @@
+Quando L'Eremita appare nella posizione del futuro, annuncia una fase di introspezione, ricerca o studio profondo. Potresti entrare in un periodo in cui la solitudine diventa uno strumento di crescita, permettendoti di chiarire obiettivi e desideri prima di intraprendere nuove azioni.  
+Questa carta indica anche che la pazienza sarà una virtù fondamentale: i risultati arriveranno, ma solo dopo aver percorso il sentiero della consapevolezza e della riflessione. Il futuro dell’Eremita porta saggezza e una connessione più profonda con la propria verità interiore.

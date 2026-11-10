@@ -1,0 +1,2 @@
+Nel presente, La Papessa rovesciata indica difficoltà nell’ascoltare la tua voce interiore o nel comprendere pienamente una situazione. Potresti vivere un momento di confusione o ricevere informazioni distorte o manipolate.  
+Questa carta ti invita a fare chiarezza, a cercare verità autentiche e a evitare decisioni impulsive. Riconnetterti con la tua saggezza interiore sarà fondamentale per affrontare le sfide attuali e per ritrovare serenità e lucidità.

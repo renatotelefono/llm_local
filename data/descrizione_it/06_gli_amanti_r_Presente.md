@@ -1,0 +1,2 @@
+Nel presente, Gli Amanti rovesciati indicano che potresti affrontare tensioni nelle relazioni o essere di fronte a una scelta difficile che genera confusione interiore.  
+Questa carta invita a fermarsi e a riflettere, evitando decisioni impulsive e cercando di ristabilire armonia attraverso dialogo, sincerità e rispetto dei propri valori. Ignorare questi segnali potrebbe portare a complicazioni emotive e relazionali più profonde.

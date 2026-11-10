@@ -1,0 +1,2 @@
+Nel presente, L'Appeso rovesciato indica che potresti sentirti in stallo o provare impazienza, incapace di accettare una fase di sospensione necessaria. Forse stai lottando contro circostanze che richiedono invece calma e introspezione.  
+Questa carta ti invita a fermarti e a osservare le tue resistenze. Accettare la necessità di cambiare prospettiva e di lasciare andare ciò che non serve più sarà fondamentale per ritrovare equilibrio e serenità.

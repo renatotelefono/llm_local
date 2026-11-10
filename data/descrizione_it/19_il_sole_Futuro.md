@@ -1,0 +1,2 @@
+Quando Il Sole appare nella posizione del futuro, preannuncia successi, momenti di felicità e realizzazioni importanti. Indica che le difficoltà saranno superate e che entrerai in una fase di espansione personale e armonia.  
+Il futuro sotto la luce del Sole porta con sé opportunità di crescita, riconoscimenti e serenità interiore. Questa carta incoraggia a seguire la strada illuminata dalla tua autenticità e dal tuo entusiasmo, ricordando che la vera forza nasce dalla fiducia nella vita e nella tua capacità di irradiare luce agli altri.

@@ -1,0 +1,2 @@
+Nel presente, La Ruota della Fortuna indica che ti trovi in un momento di transizione, in cui gli eventi possono evolvere rapidamente. Questa carta ti invita a cogliere le opportunità quando si presentano e a non temere i cambiamenti che sfuggono al tuo controllo.  
+Riconoscere il potere del destino non significa rimanere passivi, ma accettare che alcune forze più grandi di te stanno muovendo la tua vita verso nuove direzioni. Agire con flessibilità e fiducia ti permetterà di trasformare questa fase in un’occasione di crescita.

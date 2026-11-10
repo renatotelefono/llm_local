@@ -1,0 +1,2 @@
+Quando La Stella appare nella posizione del passato, richiama momenti in cui hai ritrovato speranza e serenità dopo una fase complessa. Potresti ricordare periodi in cui hai sentito una guida interiore farti strada verso la guarigione e la consapevolezza.  
+Questo passato rappresenta la base della tua forza attuale: aver superato le difficoltà ti ha insegnato a credere nelle tue capacità e a riconoscere la luce anche nei momenti di buio. Riconoscere quel percorso rafforza la tua fiducia nel presente.

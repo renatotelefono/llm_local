@@ -1,0 +1,3 @@
+Nel presente, il Matto rovesciato segnala che potresti trovarti a un bivio senza sapere chiaramente quale strada prendere. C’è il rischio di procedere con leggerezza eccessiva, ignorando segnali di pericolo o dettagli importanti. Può rappresentare distrazioni, esitazioni o un eccesso di fiducia nelle proprie capacità senza preparazione adeguata.  
+Questa carta suggerisce di rallentare, mettere a fuoco le priorità e distinguere tra vera libertà e fuga dalle responsabilità. Il Matto rovesciato ti invita a riconoscere dove stai rischiando di cadere in errore per mancanza di attenzione.  
+Solo accettando la necessità di fermarsi e riflettere, sarà possibile trasformare il disordine in un nuovo inizio più stabile.

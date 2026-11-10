@@ -1,0 +1,2 @@
+Se L'Eremita rovesciato appare nella posizione del passato, richiama momenti di chiusura eccessiva o di confusione interiore. Potresti ricordare periodi in cui hai scelto l'isolamento non per cercare saggezza, ma per paura, tristezza o disillusione.  
+Questa esperienza può aver lasciato un senso di incompiutezza, ma diventa un insegnamento prezioso: comprendere come affrontare le proprie ombre senza fuggire è la chiave per trasformare il silenzio in crescita autentica.

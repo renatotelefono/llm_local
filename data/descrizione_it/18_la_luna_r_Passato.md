@@ -1,0 +1,2 @@
+Se La Luna rovesciata appare nella posizione del passato, richiama momenti di forte confusione emotiva o di inganno, proprio o altrui. Potresti ricordare situazioni in cui hai creduto a false apparenze o hai lasciato che la paura ti guidasse, vivendo un senso di smarrimento.  
+Questa esperienza, seppur difficile, ha portato insegnamenti preziosi: ti ha insegnato a riconoscere le illusioni e a non lasciarti dominare da emozioni incontrollate.

@@ -1,0 +1,3 @@
+Quando il Matto si presenta nella posizione del futuro, preannuncia novità, viaggi o esperienze che trasformeranno la tua percezione del mondo. Può indicare l’arrivo di una fase di liberazione dai vecchi schemi, un’opportunità che richiederà coraggio e spirito di avventura.  
+Accogliere l’ignoto sarà fondamentale: il futuro del Matto non promette certezze, ma offre possibilità di crescita e rinnovamento. Ogni passo sarà un insegnamento, ogni deviazione un’occasione di scoprire nuove parti di te.  
+Questa carta ti invita a considerare la vita come un viaggio in continua evoluzione, dove anche gli imprevisti diventano alleati. Se saprai affrontare il cammino con cuore aperto, il Matto diventerà il tuo compagno di libertà e trasformazione.

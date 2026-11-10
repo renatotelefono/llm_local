@@ -1,0 +1,2 @@
+Nel presente, La Torre indica che stai attraversando o stai per affrontare un momento di trasformazione radicale. Può trattarsi di un cambiamento improvviso, di una verità che emerge o di una rottura necessaria per progredire.  
+Questa carta invita ad accogliere il cambiamento come un’opportunità di liberazione, anche se inizialmente può sembrare destabilizzante. Accettare ciò che cade permette di creare spazio per nuove fondamenta più solide e autentiche.

@@ -1,0 +1,2 @@
+Quando La Giustizia appare nella posizione del passato, richiama momenti in cui hai dovuto affrontare decisioni importanti o situazioni in cui le tue azioni hanno avuto conseguenze significative. Potresti ricordare un periodo in cui la chiarezza mentale e il rispetto delle regole sono stati fondamentali per superare sfide o risolvere conflitti.  
+Questo passato ti ricorda che l’onestà e la responsabilità hanno costruito le basi della tua vita attuale. Riconoscere il valore di quelle esperienze rafforza la tua capacità di affrontare con lucidità le scelte presenti.

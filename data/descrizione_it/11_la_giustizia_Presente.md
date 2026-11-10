@@ -1,0 +1,2 @@
+Nel presente, La Giustizia indica la necessità di agire con equilibrio e trasparenza. Potresti trovarti di fronte a decisioni cruciali che richiedono valutazioni oggettive e imparziali.  
+Questa carta invita a riflettere prima di agire, a considerare le conseguenze di ogni scelta e a non lasciarsi influenzare da emozioni o pressioni esterne. La Giustizia ricorda che la verità interiore e l’integrità morale sono i tuoi alleati più forti, guidandoti verso soluzioni che portano armonia e stabilità.

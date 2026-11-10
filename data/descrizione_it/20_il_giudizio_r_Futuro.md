@@ -1,0 +1,2 @@
+Quando Il Giudizio rovesciato appare nella posizione del futuro, avverte che ritardare le decisioni o ignorare la necessità di cambiamento potrebbe portare a frustrazione e a occasioni mancate.  
+Il consiglio della carta è di prepararti a liberarti dal passato e ad affrontare con coraggio le verità interiori. Superare le paure e accettare la trasformazione sarà la chiave per aprire un nuovo capitolo più autentico e armonioso nella tua vita.

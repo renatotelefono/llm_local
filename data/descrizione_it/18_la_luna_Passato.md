@@ -1,0 +1,2 @@
+Quando La Luna appare nella posizione del passato, richiama periodi di incertezza, confusione o di forte introspezione. Potresti ricordare momenti in cui le tue emozioni erano intense e non sempre comprensibili, oppure situazioni in cui la verità era nascosta o sfuggente.  
+Questo passato ti ha insegnato l’importanza di ascoltare la tua voce interiore e di fidarti dell’istinto quando la logica non bastava. Riconoscere quel percorso ti aiuta oggi a capire quanto hai imparato sull’autenticità dei tuoi sentimenti e sulla necessità di distinguere tra realtà e illusione.

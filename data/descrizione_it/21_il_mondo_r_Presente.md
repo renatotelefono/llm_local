@@ -1,0 +1,2 @@
+Nel presente, Il Mondo rovesciato indica un senso di frustrazione o di stagnazione. Puoi sentire di aver lavorato molto senza vedere il pieno risultato, oppure di trovarti in una fase di transizione dove manca chiarezza.  
+Questa carta ti invita a fare il punto della situazione: quali sono gli ostacoli interni o esterni che ti impediscono di completare il ciclo? A volte si tratta di paure inconsce, altre volte di influenze esterne non risolte. Solo affrontando questi nodi sarà possibile aprirsi a una nuova fase di compimento.

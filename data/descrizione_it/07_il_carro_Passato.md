@@ -1,0 +1,2 @@
+Quando Il Carro appare nella posizione del passato, richiama momenti in cui la determinazione e la forza di volontà ti hanno permesso di superare sfide importanti. Potresti ricordare successi ottenuti grazie alla disciplina, alla concentrazione e alla capacità di mantenere il controllo in situazioni difficili.  
+Questo passato rappresenta una base di sicurezza interiore: sapere di aver vinto sfide impegnative rafforza la fiducia nelle tue capacità e ti aiuta a procedere con decisione nel presente.

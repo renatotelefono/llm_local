@@ -1,0 +1,2 @@
+Nel presente, Il Mondo indica che sei in una fase di armonia e compimento. Un grande risultato potrebbe essere vicino, e presto potresti raccogliere riconoscimenti per i tuoi sforzi. È il momento di celebrare ciò che hai costruito e di riconoscere il percorso compiuto per arrivare qui.  
+Questa carta suggerisce anche apertura al mondo esterno: viaggi, incontri significativi o la sensazione di essere in sintonia con la vita stessa. La tua crescita personale ti permette di vivere un senso di completezza e di connetterti con ciò che ti circonda in modo autentico e consapevole.

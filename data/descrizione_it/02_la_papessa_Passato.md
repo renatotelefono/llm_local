@@ -1,0 +1,2 @@
+Quando La Papessa appare nella posizione del passato, richiama momenti in cui hai imparato attraverso l’osservazione e la riflessione più che attraverso l’azione. Potresti ricordare periodi di introspezione, studio o di connessione con la tua intuizione.  
+Questo passato indica che la tua crescita interiore e la tua saggezza attuale si fondano su quelle esperienze di silenzio e discernimento. Riconoscere quel percorso ti aiuta a comprendere l’importanza di fermarsi e ascoltare prima di agire.

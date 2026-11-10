@@ -1,0 +1,2 @@
+Quando Il Giudizio appare nella posizione del futuro, preannuncia una fase di rivelazioni, decisioni importanti e liberazione dal passato. Eventi significativi ti porteranno a fare scelte consapevoli e a intraprendere un nuovo inizio più in linea con la tua vera essenza.  
+Il futuro sotto il segno del Giudizio promette rinascita e chiarezza interiore, invitandoti a lasciare andare ciò che non appartiene più alla tua vita e a costruire un futuro più autentico e armonioso.

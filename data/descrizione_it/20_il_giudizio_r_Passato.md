@@ -1,0 +1,2 @@
+Se Il Giudizio rovesciato appare nella posizione del passato, richiama momenti in cui hai evitato di affrontare decisioni importanti o hai ignorato segnali che indicavano la necessità di cambiamento. Potresti ricordare periodi di stagnazione o di resistenza interiore.  
+Questa esperienza insegna che rinviare le scelte necessarie porta solo a ritardi e a maggiore difficoltà nel processo di crescita personale.

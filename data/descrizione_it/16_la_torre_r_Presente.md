@@ -1,0 +1,2 @@
+Nel presente, La Torre rovesciata indica che potresti vivere una crisi interiore o una fase di instabilità latente. Forse stai trattenendo emozioni o situazioni che prima o poi dovranno essere affrontate.  
+Questa carta ti invita ad agire con coraggio e a lasciare andare ciò che non è più stabile o autentico. Affrontare il cambiamento volontariamente può ridurre l’impatto di eventi futuri e trasformare la crisi in opportunità di crescita.

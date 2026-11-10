@@ -1,0 +1,2 @@
+Quando La Forza appare nella posizione del futuro, preannuncia un periodo in cui la tua resilienza e il tuo autocontrollo saranno fondamentali per superare prove o raggiungere obiettivi importanti.  
+Questa carta indica che il successo sarà possibile attraverso la pazienza, il coraggio e la capacità di mantenere l’equilibrio anche di fronte a sfide impegnative. Il futuro della Forza ti invita a coltivare la fiducia nelle tue capacità interiori, sapendo che la calma e la determinazione sono le chiavi per la piena realizzazione.

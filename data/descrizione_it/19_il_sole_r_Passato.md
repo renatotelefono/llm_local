@@ -1,0 +1,2 @@
+Se Il Sole rovesciato appare nella posizione del passato, richiama momenti in cui la tua felicità è stata ostacolata da paure, ritardi o da un senso di insicurezza. Potresti ricordare periodi in cui non hai saputo apprezzare pienamente ciò che avevi, lasciando che le preoccupazioni offuscassero la tua serenità.  
+Questo passato, se riconosciuto, diventa una lezione importante: la luce del Sole è sempre disponibile, ma richiede consapevolezza e apertura per essere vissuta pienamente.

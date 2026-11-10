@@ -1,0 +1,2 @@
+Quando L'Eremita rovesciato appare nella posizione del futuro, segnala possibili ritardi o difficoltà nel trovare chiarezza interiore. Il rischio è quello di prolungare una fase di isolamento non produttivo, rimanendo intrappolati in incertezze o paure.  
+Il consiglio di questa carta è di cercare il giusto equilibrio: concedersi momenti di introspezione senza perdere il contatto con la vita e con chi può offrire supporto. Superando queste difficoltà, il futuro porterà saggezza e una nuova connessione con il proprio percorso interiore.

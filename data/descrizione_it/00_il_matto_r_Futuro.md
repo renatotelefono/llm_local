@@ -1,0 +1,3 @@
+Quando il Matto rovesciato appare nella posizione del futuro, è un avvertimento: il cammino che ti attende potrebbe essere segnato da imprevisti causati da leggerezza o scarsa pianificazione. Nuove opportunità arriveranno, ma se affrontate senza consapevolezza potrebbero trasformarsi in ostacoli.  
+Questa carta ti invita a prepararti, ad accogliere il cambiamento senza perderti nel caos. Riconoscere i limiti e muoversi con prudenza ti aiuterà a trasformare i rischi in occasioni di crescita.  
+Il futuro del Matto rovesciato insegna che anche l’energia più libera ha bisogno di un minimo di direzione: trovare quell’equilibrio sarà la chiave per evitare passi falsi e costruire un cammino più sicuro.

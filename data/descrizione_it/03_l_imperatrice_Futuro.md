@@ -1,0 +1,2 @@
+Quando L'Imperatrice appare nella posizione del futuro, preannuncia una fase di crescita, prosperità e realizzazione. I tuoi sforzi di cura e creatività daranno frutti, portando soddisfazione e armonia nelle tue relazioni e nei tuoi progetti.  
+Il futuro sotto il segno dell’Imperatrice promette risultati positivi, nati dalla dedizione e dalla pazienza. Questa carta ti incoraggia a continuare a coltivare ciò che ami, perché la tua costanza porterà abbondanza e realizzazione personale.

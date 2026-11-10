@@ -1,0 +1,2 @@
+Se Il Diavolo rovesciato appare nella posizione del passato, richiama momenti in cui hai iniziato a liberarti da situazioni opprimenti o da legami limitanti. Potresti ricordare periodi in cui hai preso coscienza delle tue dipendenze o paure e hai iniziato a sciogliere i vincoli che ti trattenevano.  
+Questa esperienza ti ha insegnato l’importanza della consapevolezza e della determinazione nel superare ostacoli interiori.

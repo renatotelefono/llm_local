@@ -1,0 +1,2 @@
+Quando Il Mondo appare nella posizione del passato, indica che hai già sperimentato un momento di compimento o di grande soddisfazione. Potresti ricordare un traguardo raggiunto, la conclusione di un progetto o di un periodo importante della tua vita. Questa carta evidenzia che quell’esperienza di successo ha rafforzato la tua fiducia e ti ha mostrato quanto sei capace di portare a termine ciò che inizi.  
+Il passato del Mondo rappresenta anche la chiusura di vecchi cicli: accettare le lezioni apprese allora può aiutarti a proseguire con serenità verso nuove sfide.

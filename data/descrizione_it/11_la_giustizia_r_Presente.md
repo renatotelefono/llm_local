@@ -1,0 +1,2 @@
+Nel presente, La Giustizia rovesciata indica che potresti trovarti tra confusione, inganni e situazioni senza via d'uscita in cui la verità non è chiara. Forse stai vivendo conflitti derivanti da menzogne, omissioni o da una visione distorta della realtà.  
+Questa carta ti invita a guardare dentro di te e ad assumerti le tue responsabilità, evitando di scaricare colpe all’esterno. Solo recuperando chiarezza e onestà sarà possibile ripristinare l’equilibrio e prendere decisioni giuste.

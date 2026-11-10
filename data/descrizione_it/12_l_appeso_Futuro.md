@@ -1,0 +1,2 @@
+Quando L'Appeso appare nella posizione del futuro, preannuncia un periodo in cui sarà necessario fermarsi, riflettere e forse rinunciare temporaneamente a qualcosa per ottenere una crescita più profonda.  
+Questa carta indica che il futuro richiederà pazienza e apertura mentale. Accettare la sospensione e il cambiamento di prospettiva porterà nuove intuizioni e una trasformazione interiore che aprirà la strada a scelte più consapevoli e autentiche.

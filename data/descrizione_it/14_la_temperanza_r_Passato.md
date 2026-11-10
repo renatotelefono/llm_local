@@ -1,0 +1,2 @@
+Se La Temperanza rovesciata appare nella posizione del passato, richiama periodi in cui hai vissuto tensioni, conflitti o scelte impulsive che hanno portato instabilità. Potresti ricordare momenti in cui la mancanza di moderazione o di pazienza ha complicato situazioni già delicate.  
+Questa esperienza rappresenta un insegnamento importante: riconoscere gli effetti del disequilibrio aiuta a comprendere l’importanza di coltivare calma e misura.

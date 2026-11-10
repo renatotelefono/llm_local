@@ -1,0 +1,2 @@
+Nel presente, Il Giudizio rovesciato indica che potresti sentirti in stallo o incapace di rispondere a una chiamata interiore che richiede attenzione. Forse temi di lasciare andare il passato o di affrontare verità scomode.  
+Questa carta ti invita ad ascoltare la tua voce interiore, a liberarti da paure e sensi di colpa e a prepararti ad accogliere il cambiamento. Solo così potrai trasformare la resistenza in rinascita.

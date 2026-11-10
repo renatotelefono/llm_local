@@ -1,0 +1,2 @@
+Nel presente, Il Carro rovesciato indica che potresti sentirti in stallo o incapace di mantenere il controllo su una situazione complessa. Forse stai affrontando conflitti interni o esterni che impediscono di procedere con decisione.  
+Questa carta ti invita a fermarti, analizzare i tuoi obiettivi e ritrovare la concentrazione necessaria per superare gli ostacoli. Solo recuperando equilibrio e determinazione sarà possibile trasformare questa fase di difficoltà in un’opportunità di crescita.

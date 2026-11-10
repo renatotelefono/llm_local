@@ -1,0 +1,2 @@
+Quando Gli Amanti appaiono nella posizione del passato, richiamano momenti in cui le scelte affettive o relazionali hanno avuto un ruolo determinante nella tua vita. Potresti ricordare relazioni importanti, decisioni di cuore o situazioni in cui hai seguito l’istinto anziché la logica.  
+Questo passato ti ha insegnato il valore delle connessioni autentiche e la responsabilità che ogni scelta porta con sé. Riconoscere queste esperienze ti aiuta a comprendere come le decisioni emotive abbiano contribuito alla tua crescita personale.

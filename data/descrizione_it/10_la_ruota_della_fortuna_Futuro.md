@@ -1,0 +1,2 @@
+Quando La Ruota della Fortuna appare nella posizione del futuro, preannuncia una svolta significativa, un cambiamento improvviso o l’arrivo di opportunità inattese. Il futuro sarà segnato dal movimento, dalla possibilità di chiudere cicli vecchi e di aprirne di nuovi.  
+Il consiglio di questa carta è di accogliere le novità e di non opporsi al cambiamento: la capacità di adattarsi e di cogliere il momento giusto sarà fondamentale per trasformare gli eventi in occasioni di successo e realizzazione personale.

@@ -1,0 +1,2 @@
+Quando La Papessa rovesciata appare nella posizione del futuro, segnala il rischio di ritardi, incomprensioni o decisioni sbagliate dovute a mancanza di introspezione. Se non si presta attenzione alla propria guida interiore, si rischia di cadere in autoinganni o di seguire percorsi non autentici.  
+Il consiglio della carta è di recuperare il silenzio e la connessione interiore, perché solo attraverso la consapevolezza e l’intuito potrai trasformare l’incertezza in saggezza e trovare il cammino più autentico.

@@ -1,0 +1,2 @@
+Quando La Stella rovesciata appare nella posizione del futuro, avverte che potresti attraversare un periodo in cui le sfide potrebbero farti dubitare di te e della vita. Tuttavia, il messaggio di questa carta è anche di incoraggiamento: la luce tornerà, ma richiede pazienza e impegno interiore.  
+Il consiglio della carta è di coltivare resilienza, di cercare ispirazione in ciò che ti nutre spiritualmente e di credere che anche dopo le difficoltà è possibile rinascere più forti e consapevoli.

@@ -1,0 +1,2 @@
+Quando La Luna appare nella posizione del futuro, preannuncia un periodo in cui le emozioni, l’intuito e la sensibilità avranno un ruolo fondamentale. Potrebbero esserci situazioni poco chiare o ritardi dovuti alla necessità di comprendere meglio la realtà.  
+Questa carta incoraggia a fidarsi del proprio istinto e a procedere con cautela, senza lasciarsi guidare solo dall’apparenza. Il futuro della Luna porta crescita interiore e maggiore consapevolezza, a patto di affrontare le proprie paure e di distinguere tra ciò che è reale e ciò che è frutto di illusioni.

@@ -1,0 +1,2 @@
+Nel presente, Il Diavolo indica che potresti vivere una situazione che limita la tua libertà, o sentire la tentazione di scelte che offrono gratificazione immediata ma portano conseguenze negative.  
+Questa carta invita a osservare con onestà i tuoi legami, desideri e abitudini, per distinguere tra ciò che nutre davvero la tua vita e ciò che la impoverisce. La consapevolezza di queste dinamiche è il primo passo verso la liberazione.

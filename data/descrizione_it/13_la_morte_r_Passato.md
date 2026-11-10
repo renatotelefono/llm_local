@@ -1,0 +1,2 @@
+Se La Morte rovesciata appare nella posizione del passato, richiama periodi in cui hai evitato cambiamenti importanti o hai resistito alla chiusura di un ciclo inevitabile. Potresti ricordare momenti in cui la paura di perdere certezze ti ha impedito di aprirti a nuove possibilità.  
+Questa esperienza insegna che il rifiuto del cambiamento porta solo a ritardi e ostacoli, ma offre anche la consapevolezza di quanto sia necessario, prima o poi, lasciar andare per poter rinascere.

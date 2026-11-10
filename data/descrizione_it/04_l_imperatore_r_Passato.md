@@ -1,0 +1,2 @@
+Se L'Imperatore rovesciato appare nella posizione del passato, richiama momenti in cui l’autorità è stata usata male o in cui ti sono mancati sostegno e ordine. Potresti ricordare esperienze di rigidità, imposizione o al contrario di instabilità dovuta a mancanza di regole chiare.  
+Questo passato rappresenta una lezione importante: riconoscere gli effetti negativi di una gestione eccessivamente autoritaria o disorganizzata può guidarti oggi a creare equilibrio e sicurezza senza cadere negli stessi errori.

@@ -1,0 +1,2 @@
+Se La Forza rovesciata appare nella posizione del passato, richiama periodi di instabilità emotiva o di mancanza di fiducia in sé stessi. Potresti ricordare momenti in cui le emozioni hanno preso il sopravvento, portando a reazioni impulsive o scelte avventate.  
+Questa esperienza, se riconosciuta, diventa un insegnamento prezioso: imparare dai momenti di debolezza aiuta a sviluppare resilienza e consapevolezza emotiva per affrontare meglio le sfide presenti e future.

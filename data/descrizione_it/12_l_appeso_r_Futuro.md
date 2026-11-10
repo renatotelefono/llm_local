@@ -1,0 +1,2 @@
+Quando L'Appeso rovesciato appare nella posizione del futuro, avverte che potresti vivere ritardi o difficoltà dovute alla resistenza al cambiamento.  
+Il consiglio della carta è di non ostinarti a mantenere il controllo a tutti i costi: abbracciare il cambiamento e accettare momenti di pausa ti permetterà di trasformare la frustrazione in crescita interiore e di aprirti a nuove possibilità più autentiche.

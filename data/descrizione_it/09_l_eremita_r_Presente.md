@@ -1,0 +1,2 @@
+Nel presente, L'Eremita rovesciato segnala che potresti provare smarrimento, distacco dagli altri o difficoltà a trovare chiarezza. Forse stai evitando di ascoltare la tua voce interiore, o al contrario ti stai rinchiudendo troppo nel tuo mondo, perdendo il contatto con la realtà circostante.  
+Questa carta ti invita a cercare equilibrio tra introspezione e interazione con il mondo: aprirsi gradualmente agli altri e accettare aiuto può riportare luce sul cammino, trasformando la solitudine sterile in riflessione costruttiva.

@@ -1,0 +1,2 @@
+Quando Il Sole rovesciato appare nella posizione del futuro, segnala che la felicità arriverà, ma potrebbe essere ritardata o richiedere uno sforzo di consapevolezza per essere pienamente accolta. Alcuni ostacoli, interni o esterni, dovranno essere superati prima di vivere una fase di piena realizzazione.  
+Questa carta suggerisce che, nonostante le difficoltà momentanee, la luce tornerà a splendere. Coltivando fiducia e autenticità, il futuro ti offrirà comunque momenti di gioia e armonia, anche se conquistati con più pazienza.

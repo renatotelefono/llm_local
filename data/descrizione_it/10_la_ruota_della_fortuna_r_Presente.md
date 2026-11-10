@@ -1,0 +1,2 @@
+Nel presente, La Ruota della Fortuna rovesciata segnala resistenza al cambiamento o difficoltà nell’adattarsi a situazioni impreviste. Potresti faticare a uscire da vecchi schemi o temere di perdere il controllo di fronte a eventi inattesi.  
+Questa carta invita a lasciar andare il bisogno di controllare tutto e a fidarti del flusso della vita. Accettare che i cicli di alti e bassi siano inevitabili è il primo passo per superare le difficoltà e aprirsi a nuove possibilità.

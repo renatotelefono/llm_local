@@ -1,0 +1,2 @@
+Nel presente, L'Imperatore rovesciato segnala conflitti con l’autorità, difficoltà a gestire responsabilità o resistenze interiori verso regole e strutture. Potresti sentirti sotto pressione o percepire di aver perso il controllo su alcune aree della tua vita.  
+Questa carta suggerisce di rivedere il modo in cui eserciti potere e disciplina, invitando a bilanciare fermezza e flessibilità. Recuperare chiarezza e stabilire confini realistici sarà fondamentale per evitare tensioni e per ripristinare un senso di stabilità interiore ed esterna.

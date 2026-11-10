@@ -1,0 +1,2 @@
+Quando La Temperanza appare nella posizione del passato, richiama momenti in cui hai trovato equilibrio dopo un periodo di difficoltà o di conflitti. Potresti ricordare esperienze in cui la pazienza e la capacità di mediazione ti hanno permesso di superare situazioni complesse e di ritrovare serenità.  
+Questo passato rappresenta la base della tua stabilità attuale: l’aver imparato a unire opposti e a gestire le emozioni con saggezza continua a guidarti nel presente.

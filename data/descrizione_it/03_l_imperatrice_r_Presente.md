@@ -1,0 +1,2 @@
+Nel presente, L'Imperatrice rovesciata indica che potresti sentire di avere poca energia creativa o emotiva. Forse ti stai trascurando, o stai trascurando le persone a cui tieni, oppure senti che un progetto è fermo e non riesce a fiorire.  
+Questa carta ti invita a prenderti cura delle tue risorse interiori, a recuperare la connessione con la natura e con ciò che ti ispira. Solo ritrovando armonia e autocompassione sarà possibile sbloccare la creatività e riportare equilibrio nella tua vita.

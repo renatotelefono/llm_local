@@ -1,0 +1,2 @@
+Nel presente, Il Papa indica che è il momento di cercare chiarezza attraverso la riflessione e l’ascolto interiore. Potresti aver bisogno di una guida, di un consiglio o di rafforzare i tuoi principi etici per affrontare una situazione complessa.  
+La carta suggerisce di non agire impulsivamente, ma di attingere alla conoscenza e all’esperienza già disponibili, sia dentro di te che attorno a te. È un invito a rispettare i tuoi valori e a trovare stabilità attraverso la comprensione profonda, evitando scorciatoie o compromessi superficiali.

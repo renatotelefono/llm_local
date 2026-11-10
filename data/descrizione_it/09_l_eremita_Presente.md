@@ -1,0 +1,2 @@
+Nel presente, L'Eremita suggerisce di rallentare e di guardare dentro di te per trovare le risposte che cerchi. È una carta che invita alla prudenza, all’osservazione silenziosa e alla riflessione prima di prendere decisioni importanti.  
+Può indicare un periodo in cui senti il bisogno di staccarti da alcune influenze esterne, di meditare o di approfondire la tua ricerca spirituale. L’Eremita ti ricorda che il vero sapere si costruisce nel tempo e nella calma, e che le scelte migliori nascono dalla connessione con la propria saggezza interiore.

@@ -1,0 +1,3 @@
+Se il Matto rovesciato appare nella posizione del passato, richiama un periodo di confusione o di scelte avventate. Potresti ricordare momenti in cui hai seguito l’istinto senza ascoltare la ragione, ritrovandoti in situazioni complicate o in percorsi che non hanno portato i frutti sperati.  
+Questa carta non giudica, ma suggerisce di riflettere su come quelle esperienze ti abbiano insegnato a valutare meglio le conseguenze. Spesso indica errori trasformati in lezioni preziose, che possono oggi guidarti verso una maggiore consapevolezza.  
+Il passato del Matto rovesciato parla di un’energia dispersa che, se riconosciuta, può diventare un monito a non ripetere gli stessi schemi.

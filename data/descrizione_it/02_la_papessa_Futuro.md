@@ -1,0 +1,2 @@
+Quando La Papessa appare nella posizione del futuro, preannuncia un periodo di introspezione, di rivelazioni interiori e di comprensione più profonda di te e delle situazioni intorno a te.  
+Il futuro sotto il segno della Papessa indica che la saggezza e la chiarezza arriveranno attraverso il silenzio e la pazienza, piuttosto che con l’azione immediata. Questa carta incoraggia ad accogliere la conoscenza come un processo interiore, che porterà a scelte più consapevoli e a una visione più limpida del mondo.

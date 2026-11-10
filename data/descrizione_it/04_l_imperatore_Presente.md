@@ -1,0 +1,2 @@
+Nel presente, L'Imperatore suggerisce di assumere il controllo della tua vita e di agire con decisione. È il momento di fare scelte ponderate e di stabilire regole chiare, sia per te che per le persone e le situazioni che ti circondano.  
+Questa carta indica un periodo favorevole per portare ordine dove regna il caos e per prendere decisioni che richiedono maturità e determinazione. L’energia dell’Imperatore ti invita a trovare forza nella stabilità e nella fiducia nelle tue capacità di leader e costruttore.

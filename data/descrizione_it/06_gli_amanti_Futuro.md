@@ -1,0 +1,2 @@
+Quando Gli Amanti appaiono nella posizione del futuro, preannunciano un periodo di unione, armonia e scelte consapevoli. Potrebbe arrivare una nuova relazione significativa o una decisione di cuore che segnerà una svolta nella tua vita.  
+Il futuro sotto il segno degli Amanti invita a seguire la voce interiore e a coltivare relazioni sincere. La felicità nascerà dall’allineamento tra ciò che senti e ciò che scegli di fare, creando connessioni profonde e autentiche.

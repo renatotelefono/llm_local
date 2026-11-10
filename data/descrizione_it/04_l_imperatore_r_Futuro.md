@@ -1,0 +1,2 @@
+Quando L'Imperatore rovesciato appare nella posizione del futuro, avverte di possibili sfide legate a instabilità, conflitti di potere o difficoltà a portare avanti progetti a causa di mancanza di organizzazione.  
+Il consiglio è di lavorare sul senso di responsabilità e sulla capacità di pianificazione, senza cadere nell’eccesso di controllo né nel disordine. Superando questi ostacoli, il futuro offrirà l’opportunità di costruire una nuova stabilità fondata su equilibrio e consapevolezza.

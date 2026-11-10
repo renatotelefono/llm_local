@@ -1,0 +1,2 @@
+Quando Il Carro rovesciato appare nella posizione del futuro, avverte che potresti incontrare sfide legate alla perdita di direzione o a ostacoli imprevisti. Ritardi e deviazioni sono possibili, ma non definitivi.  
+Il consiglio della carta è di prepararsi a ritrovare il controllo e a non lasciarsi scoraggiare dalle difficoltà. La capacità di riorientare le proprie energie sarà la chiave per superare gli ostacoli e riprendere il cammino verso la vittoria.

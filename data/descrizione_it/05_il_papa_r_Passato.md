@@ -1,0 +1,2 @@
+Se Il Papa rovesciato appare nella posizione del passato, richiama momenti in cui hai sentito il peso di regole o aspettative esterne. Potresti aver vissuto situazioni di autorità opprimente o di adesione a credenze che non ti rappresentavano davvero.  
+Questa carta, pur segnalando una fase di limitazione, indica anche un punto di svolta: ciò che hai vissuto ti ha permesso di riconoscere la necessità di trovare una tua verità personale. Il passato diventa quindi un insegnamento prezioso di emancipazione spirituale e di discernimento.

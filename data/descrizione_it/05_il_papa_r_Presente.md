@@ -1,0 +1,2 @@
+Nel presente, Il Papa rovesciato segnala confusione spirituale o conflitto tra interiorità e ambiente esterno. Può rappresentare la difficoltà di fidarsi della propria voce interiore oppure la presenza di influenze esterne che distorcono il tuo cammino.  
+Questa carta invita a mettere in discussione le regole che segui: lo fai per convinzione profonda o solo per abitudine o timore del giudizio? Recuperare l’autenticità e liberarsi da schemi rigidi sarà fondamentale per ritrovare equilibrio e chiarezza.

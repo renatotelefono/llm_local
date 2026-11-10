@@ -1,0 +1,2 @@
+Quando La Giustizia appare nella posizione del futuro, preannuncia un periodo di chiarezza e di resa dei conti. Eventi imminenti porteranno equilibrio e verità, mettendo in luce il risultato delle tue azioni passate.  
+Questa carta suggerisce che la trasparenza e la correttezza saranno premiate, mentre eventuali ingiustizie o scorrettezze emergeranno. Il futuro della Giustizia invita a continuare a seguire la via dell’integrità, perché solo chi agisce in armonia con i propri valori trova pace e stabilità durature.

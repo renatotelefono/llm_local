@@ -1,0 +1,2 @@
+Nel presente, La Morte segnala che è il momento di chiudere una fase della tua vita per aprirne un’altra. Potresti trovarti davanti a cambiamenti inevitabili, che richiedono di lasciar andare ciò che non ti serve più.  
+Questa carta incoraggia ad accogliere la trasformazione con fiducia, ricordando che ogni fine porta con sé un nuovo inizio. Anche se la transizione può sembrare difficile, la liberazione che ne segue apre a una vita più autentica e ricca di possibilità.

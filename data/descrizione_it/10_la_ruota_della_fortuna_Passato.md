@@ -1,0 +1,2 @@
+Quando La Ruota della Fortuna appare nella posizione del passato, richiama momenti in cui la tua vita ha subito cambiamenti importanti e spesso improvvisi. Potresti ricordare eventi che hanno stravolto piani o certezze, portando però a nuove direzioni o opportunità inaspettate.  
+Questo passato insegna che l’adattabilità e la fiducia nel flusso della vita sono state fondamentali per superare le sfide e che ogni cambiamento, anche inatteso, ha contribuito alla tua crescita personale.

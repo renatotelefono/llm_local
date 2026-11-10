@@ -1,0 +1,2 @@
+Se Gli Amanti rovesciati appaiono nella posizione del passato, richiamano momenti di crisi relazionale o scelte sbagliate che hanno portato conseguenze difficili. Potresti ricordare relazioni segnate da incomprensioni, gelosie o mancanza di chiarezza emotiva.  
+Questa esperienza rappresenta una lezione preziosa: comprendere i propri errori e le proprie fragilità permette di costruire legami più autentici e consapevoli in futuro.

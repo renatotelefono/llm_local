@@ -1,0 +1,2 @@
+Quando L'Imperatrice rovesciata appare nella posizione del futuro, segnala ritardi o difficoltà nella crescita di progetti, relazioni o percorsi personali. Potrebbero esserci ostacoli emotivi o pratici da superare prima di vedere i frutti del tuo impegno.  
+Il consiglio della carta è di lavorare sulla cura di te e sull’equilibrio tra dare e ricevere. Ritrovando armonia interiore, potrai trasformare blocchi e ritardi in nuove opportunità di crescita e realizzazione.

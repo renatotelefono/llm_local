@@ -1,0 +1,2 @@
+Nel presente, Il Diavolo rovesciato indica un periodo di liberazione e di crescita interiore. Potresti essere nel processo di rompere catene emotive, materiali o comportamentali che ti limitavano.  
+Questa carta ti incoraggia a continuare su questa strada, ricordandoti che ogni passo verso la libertà richiede coraggio e onestà verso di te. La trasformazione in atto ti permetterà di recuperare energia e autenticità.

@@ -1,0 +1,2 @@
+Se il Mago rovesciato appare nella posizione del passato, richiama un periodo in cui le tue capacità non sono state pienamente sfruttate o sono state deviate verso obiettivi poco costruttivi. Potresti ricordare momenti di esitazione, promesse mancate o decisioni influenzate dall’illusione.  
+Questa carta, pur evidenziando errori o distrazioni, porta con sé un messaggio di consapevolezza: ogni esperienza di disordine o manipolazione può trasformarsi in una lezione per gestire meglio le tue risorse nel presente.

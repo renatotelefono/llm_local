@@ -1,0 +1,2 @@
+Nel presente, La Forza suggerisce che possiedi le risorse necessarie per affrontare le sfide attuali. È una carta che invita a mantenere la calma, a non lasciarsi sopraffare dalle emozioni intense e a procedere con fiducia.  
+Questa energia incoraggia a usare la gentilezza e la pazienza come strumenti di successo, ricordando che la vera vittoria nasce dalla padronanza di sé. È anche un richiamo a riconoscere la tua capacità di influenzare positivamente gli altri attraverso la tua serenità e la tua forza morale.

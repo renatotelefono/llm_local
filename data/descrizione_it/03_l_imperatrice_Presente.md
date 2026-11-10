@@ -1,0 +1,2 @@
+Nel presente, L'Imperatrice suggerisce che ti trovi in una fase di espansione e di armonia. È il momento di coltivare la tua creatività e di prenderti cura delle persone, dei progetti o delle situazioni che ritieni più preziose.  
+Questa carta indica che la prosperità è vicina, ma richiede attenzione, dedizione e una connessione autentica con i tuoi valori. L’energia dell’Imperatrice ti invita a fidarti della tua capacità di creare e di nutrire, portando equilibrio e abbondanza nella tua vita.

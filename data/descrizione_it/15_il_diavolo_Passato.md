@@ -1,0 +1,2 @@
+Quando Il Diavolo appare nella posizione del passato, richiama momenti in cui hai subito l'influenza di passioni, tentazioni o condizionamenti esterni. Potresti ricordare periodi di dipendenza emotiva, materiale o comportamentale che hanno limitato la tua libertà di scelta.  
+Questo passato rappresenta una lezione importante: aver sperimentato vincoli e limitazioni ti ha insegnato a riconoscere ciò che ti imprigiona e a trovare la forza di liberarti da legami tossici o situazioni ingannevoli.

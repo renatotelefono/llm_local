@@ -1,0 +1,2 @@
+Nel presente, L'Appeso suggerisce che ti trovi in una fase di stallo o di riflessione profonda. Potresti percepire rallentamenti o ostacoli esterni, ma la carta invita a vedere questo momento come un’opportunità di crescita interiore.  
+È il momento di osservare la situazione da un’altra prospettiva e di lasciar andare aspettative o vecchi schemi. L’Appeso insegna che la trasformazione nasce dalla capacità di accettare e comprendere prima di agire.

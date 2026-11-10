@@ -1,0 +1,2 @@
+Nel presente, La Papessa indica che è il momento di osservare attentamente e di affidarsi all’intuito. Potresti trovarti in situazioni poco chiare, dove l’azione impulsiva non è la soluzione.  
+Questa carta invita a pazientare, ad approfondire le informazioni disponibili e ad ascoltare la tua voce interiore. La Papessa ricorda che la conoscenza autentica nasce dall’equilibrio tra osservazione, intuizione e saggezza silenziosa. È anche un segnale che i segreti o le verità nascoste potrebbero rivelarsi al momento opportuno.

@@ -1,0 +1,2 @@
+Nel presente, La Stella indica che sei in una fase di pace interiore e di rinnovata speranza. È il momento di lasciarsi guidare dall’intuito e dalla fiducia nella vita, accogliendo l’armonia che ti circonda.  
+Questa carta incoraggia a esprimere autenticità, creatività e generosità, ricordando che la tua luce interiore può ispirare anche gli altri. È anche un invito a coltivare la connessione spirituale e a mantenere viva la fiducia nelle possibilità future.

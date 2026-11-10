@@ -1,0 +1,2 @@
+Se L'Appeso rovesciato appare nella posizione del passato, richiama momenti di immobilità o di occasioni mancate dovute alla resistenza interiore. Potresti ricordare periodi in cui la paura di cambiare ha impedito di cogliere opportunità di crescita.  
+Questa esperienza insegna che la resistenza al flusso naturale della vita porta solo frustrazione, mentre la capacità di accettare e lasciar andare apre la strada a trasformazioni profonde.

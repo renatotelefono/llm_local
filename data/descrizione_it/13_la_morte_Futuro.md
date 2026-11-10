@@ -1,0 +1,2 @@
+Quando La Morte appare nella posizione del futuro, preannuncia l’arrivo di trasformazioni profonde e di conclusioni necessarie. Alcune situazioni raggiungeranno il loro naturale epilogo, permettendoti di fare spazio a nuove esperienze e opportunità.  
+Il futuro di questa carta invita ad affrontare il cambiamento con coraggio, senza opporre resistenza: solo accettando la fine di ciò che è superato potrai accogliere pienamente la rinascita e la crescita interiore.

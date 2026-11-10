@@ -1,0 +1,2 @@
+Nel presente, Il Sole indica che sei in un periodo di apertura e successo. Le situazioni si chiariscono, i dubbi si dissolvono e le relazioni si rafforzano grazie alla trasparenza e alla fiducia reciproca.  
+Questa carta invita a celebrare la vita, a godere dei risultati raggiunti e a condividere la tua gioia con gli altri. La luce del Sole illumina le tue scelte, rendendo possibile affrontare ogni situazione con ottimismo. È anche un richiamo alla gratitudine: riconoscere ciò che hai conquistato rafforza la tua energia vitale e ti apre a nuove opportunità.

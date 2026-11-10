@@ -1,0 +1,2 @@
+Nel presente, La Luna suggerisce che potresti trovarti in una fase di incertezza o di dubbi. Alcune informazioni potrebbero non essere complete, e c’è il rischio di lasciarsi confondere da paure, illusioni o influenze esterne.  
+Questa carta invita alla prudenza: prima di agire, osserva attentamente le situazioni e ascolta la tua intuizione. È anche un invito a esplorare il mondo dei sogni, delle emozioni e della creatività, perché da lì possono arrivare intuizioni preziose per illuminare il cammino.

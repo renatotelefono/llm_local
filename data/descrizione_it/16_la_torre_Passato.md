@@ -1,0 +1,2 @@
+Quando La Torre appare nella posizione del passato, richiama momenti in cui la tua vita è stata scossa da eventi improvvisi e destabilizzanti. Potresti ricordare la fine di una relazione, un cambiamento radicale o una situazione in cui certezze consolidate sono crollate.  
+Questo passato ti ha insegnato l’importanza di ricostruire su basi solide e autentiche, ricordandoti che anche le crisi più dolorose possono portare a una rinascita e a una nuova consapevolezza.

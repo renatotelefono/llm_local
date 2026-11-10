@@ -1,0 +1,2 @@
+Quando La Temperanza rovesciata appare nella posizione del futuro, avverte che la fretta, la rigidità o le emozioni non controllate potrebbero portare a conflitti o ostacoli.  
+Il consiglio della carta è di coltivare la pazienza e di non lasciarsi trascinare dagli estremi. Lavorare per ritrovare armonia interiore e per gestire le relazioni con diplomazia permetterà di trasformare le difficoltà in opportunità di crescita e stabilità.

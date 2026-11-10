@@ -1,0 +1,2 @@
+Nel presente, La Morte rovesciata segnala una fase di blocco o di resistenza interiore. Potresti sentire il bisogno di cambiare ma temere le conseguenze della trasformazione.  
+Questa carta ti invita a riflettere su cosa stai trattenendo e sul costo emotivo di restare in situazioni ormai concluse. Accettare la fine di ciò che non è più utile è il passo fondamentale per liberarti da pesi e aprirti alla rinascita.

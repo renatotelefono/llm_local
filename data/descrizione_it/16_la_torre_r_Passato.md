@@ -1,0 +1,2 @@
+Se La Torre rovesciata appare nella posizione del passato, richiama momenti in cui hai cercato di evitare cambiamenti inevitabili o hai resistito a verità scomode. Potresti ricordare situazioni in cui la paura di perdere stabilità ti ha portato a rimandare decisioni importanti.  
+Questo passato insegna che la resistenza al cambiamento spesso prolunga le difficoltà, mentre accogliere la trasformazione permette di rinascere più forti.

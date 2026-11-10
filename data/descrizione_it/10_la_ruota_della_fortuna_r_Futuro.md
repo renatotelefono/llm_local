@@ -1,0 +1,2 @@
+Quando La Ruota della Fortuna rovesciata appare nella posizione del futuro, avverte che i cambiamenti potrebbero arrivare con ritardo o portare sfide inattese se si resiste al flusso naturale degli eventi.  
+Il consiglio della carta è di sviluppare flessibilità e di prepararsi ad affrontare imprevisti senza paura. Accogliere il cambiamento e imparare dalle difficoltà ti permetterà di trasformare un periodo complesso in un’opportunità di crescita e di rinnovamento interiore.

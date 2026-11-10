@@ -1,0 +1,2 @@
+Se Il Mondo rovesciato appare nella posizione del passato, richiama momenti in cui un progetto o un percorso non si è concluso come speravi. Potrebbero esserci state interruzioni, rimandi o scelte che hanno impedito di raggiungere la piena soddisfazione.  
+Questa carta segnala che, anche se l’esperienza non si è chiusa armoniosamente, ha lasciato insegnamenti preziosi. Riconoscere dove hai lasciato “porte aperte” nel passato può aiutarti a liberarti da vecchi legami e a progredire verso nuovi cicli di crescita.

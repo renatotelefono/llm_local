@@ -1,0 +1,2 @@
+Nel presente, Il Giudizio indica che sei in una fase di risveglio e di riflessione profonda. È il momento di fare chiarezza, di valutare le tue scelte e di riconoscere le conseguenze delle tue azioni.  
+Questa carta invita a liberarti da pesi emotivi e a rispondere alla “chiamata interiore” che ti guida verso una vita più autentica. È anche un segnale di opportunità: accogliere il cambiamento con fiducia può aprire la strada a nuove possibilità e a una crescita personale significativa.

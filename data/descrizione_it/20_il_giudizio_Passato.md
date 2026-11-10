@@ -1,0 +1,2 @@
+Quando Il Giudizio appare nella posizione del passato, richiama momenti in cui hai vissuto esperienze di rinnovamento o di valutazione profonda della tua vita. Potresti ricordare decisioni decisive, cambiamenti significativi o periodi in cui la consapevolezza di te è aumentata.  
+Questo passato rappresenta una base di forza e di chiarezza, poiché ti ha insegnato a riconoscere la necessità di cambiamento e a lasciare andare ciò che non serviva più al tuo percorso.

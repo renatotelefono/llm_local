@@ -1,0 +1,2 @@
+Nel presente, La Temperanza rovesciata indica che potresti affrontare momenti di frustrazione o di disarmonia. Forse stai cercando di forzare eventi o di gestire situazioni senza la necessaria pazienza, rischiando di creare ulteriori tensioni.  
+Questa carta suggerisce di rallentare, di respirare e di cercare un punto di equilibrio. Ritrovare la calma interiore e procedere con passi misurati sarà la chiave per ristabilire stabilità e serenità nella tua vita.

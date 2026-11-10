@@ -1,0 +1,2 @@
+Nel presente, La Temperanza suggerisce che sei in un momento in cui la moderazione e l’armonia sono fondamentali. Potresti dover affrontare situazioni che richiedono equilibrio, diplomazia e capacità di adattamento.  
+Questa carta invita a evitare estremi, a cercare la via della collaborazione e a fidarti del flusso naturale degli eventi. La Temperanza ricorda che i risultati più duraturi si ottengono attraverso pazienza, cooperazione e un atteggiamento calmo e consapevole.

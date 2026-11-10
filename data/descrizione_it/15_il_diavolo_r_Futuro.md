@@ -1,0 +1,2 @@
+Quando Il Diavolo rovesciato appare nella posizione del futuro, preannuncia un processo di liberazione completa da schemi limitanti e condizionamenti. Il futuro porterà chiarezza e nuove possibilità, nate dal coraggio di affrontare le tue ombre interiori.  
+Il consiglio della carta è di perseverare nel percorso di emancipazione e di non temere di lasciar andare ciò che non serve più. La libertà conquistata sarà la base di una nuova fase di vita più autentica e consapevole.

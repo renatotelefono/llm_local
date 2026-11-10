@@ -1,0 +1,2 @@
+Quando Gli Amanti rovesciati appaiono nella posizione del futuro, preannunciano possibili conflitti, separazioni o difficoltà nel prendere decisioni in linea con i propri valori.  
+Il consiglio della carta è di lavorare sulla chiarezza interiore e sull’autenticità emotiva prima di compiere scelte decisive. Solo così sarà possibile trasformare eventuali crisi in occasioni di crescita e costruire relazioni più solide e sincere.

@@ -1,0 +1,2 @@
+Quando Il Carro appare nella posizione del futuro, preannuncia progressi, trionfi e la possibilità di raggiungere obiettivi importanti. Gli sforzi fatti porteranno risultati concreti, e la tua determinazione sarà ricompensata.  
+Il futuro del Carro invita a continuare a coltivare coraggio, disciplina e concentrazione. Solo mantenendo equilibrio e controllo sarà possibile sfruttare al meglio le opportunità che si presenteranno e trasformarle in conquiste durature.

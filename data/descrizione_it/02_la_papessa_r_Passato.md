@@ -1,0 +1,2 @@
+Se La Papessa rovesciata appare nella posizione del passato, richiama periodi in cui non hai dato fiducia alla tua intuizione o hai ignorato segnali importanti. Potresti ricordare momenti in cui influenze esterne o emozioni non comprese hanno creato confusione dentro di te.  
+Questa esperienza insegna l’importanza di fermarsi, ascoltare se stessi e valutare le situazioni in profondità prima di agire.

@@ -1,0 +1,2 @@
+Quando L'Imperatore appare nella posizione del futuro, preannuncia l’arrivo di una fase di sicurezza e consolidamento. Le tue azioni presenti, se guidate da responsabilità e coerenza, porteranno a risultati duraturi e solidi.  
+Questa carta indica che il successo futuro sarà fondato sull’impegno, la pianificazione e la capacità di assumersi responsabilità. Il messaggio dell’Imperatore è chiaro: costruisci ora le fondamenta solide della tua vita, perché la stabilità e la forza che crei oggi diventeranno la base delle tue conquiste di domani.

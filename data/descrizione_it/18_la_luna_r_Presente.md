@@ -1,0 +1,2 @@
+Nel presente, La Luna rovesciata segnala che stai iniziando a vedere con maggiore chiarezza una situazione prima avvolta dall’incertezza. Alcune verità nascoste potrebbero emergere, ma potrebbero portare con sé anche disillusione o la necessità di affrontare paure profonde.  
+Questa carta ti incoraggia a fidarti della tua intuizione ma anche a verificare i fatti con attenzione, evitando di cadere in vecchi schemi di autoinganno o di lasciarti manipolare da influenze esterne.
