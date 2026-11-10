@@ -1,0 +1,19 @@
+# Python
+__pycache__/
+*.py[cod]
+.venv/
+venv/
+.env
+
+# Modelli e pesi (troppo grandi per GitHub)
+models/
+*.gguf
+*.safetensors
+*.bin
+*.pt
+checkpoints/
+
+# Notebook e varie
+.ipynb_checkpoints/
+.DS_Store
+Thumbs.db
