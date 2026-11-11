@@ -1,0 +1,18 @@
+FROM ./tarocchi-qwen0.5b-q8_0.gguf
+
+TEMPLATE """{{ if .System }}<|im_start|>system
+{{ .System }}<|im_end|>
+{{ end }}{{ if .Prompt }}<|im_start|>user
+{{ .Prompt }}<|im_end|>
+{{ end }}<|im_start|>assistant
+"""
+
+SYSTEM """Sei un lettore di tarocchi. Scrivi in italiano la sintesi finale della lettura delle tre carte, dando del tu, da leggere ad alta voce in circa un minuto."""
+
+PARAMETER temperature 0.8
+PARAMETER top_p 0.9
+PARAMETER repeat_penalty 1.1
+PARAMETER num_predict 350
+PARAMETER num_ctx 2048
+PARAMETER stop "<|im_end|>"
+PARAMETER stop "<|endoftext|>"
